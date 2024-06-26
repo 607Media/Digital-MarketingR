@@ -1,6 +1,6 @@
 # Digital-MarketingR
 
-[607 Media}(https://607.media/) is a team of SEO specialists and creatives dedicated to delivering results.
+[607 Media](https://607.media/) is a team of SEO specialists and creatives dedicated to delivering results.
 
 Why Partner With Us?
 If you’re serious about skyrocketing your organic search traffic and scaling your e-commerce business, your average SEO agency won’t get it done.
